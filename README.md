@@ -1,0 +1,1 @@
+# AIForALL_Assignments
